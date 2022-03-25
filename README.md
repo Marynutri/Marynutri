@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Marynutri
+- 👀 I’m interested in  nutrição infantil
+- 🌱 I’m  estudante de Nutrição
+- 📫 How to reach me  @am.nutri
